@@ -1,6 +1,6 @@
 #DESIGN ETHNOGRAPHY
 
-When people lack knowledge on other cultures, they make decisions bbased on their own cullture, values and experience.
+When people lack knowledge on other cultures, they make decisions based on their own cullture, values and experience.
 This brings up issues in the global marketplace.
 
 Anthropologists(prople who study people) have made some sense of local cultures around the world by
